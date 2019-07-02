@@ -1,6 +1,6 @@
 # Taragona Enduro Weekender
 
-##Itinerary
+## Itinerary
 
 - Friday leave BCN in my car around 5/6pm
 - Pickup Dan from BCN or Reus on route
